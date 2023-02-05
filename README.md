@@ -1,5 +1,5 @@
 # BluePotato102
-
-Just another person
-Co-owner of https://monkeygg2.github.io
-trying to learn more stuff ig
+<br><br>
+Just another person <br>
+Co-owner of https://monkeygg2.github.io<br>
+trying to learn more stuff ig<br>
